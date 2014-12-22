@@ -32,9 +32,38 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-To my louynge brethren that is troublyd abowt the popishe aparrell, two short and comfortable episte
+
 #####Body#####
-To my louynge brethren that is troublyd abowt the popishe aparrell, two short and comfortable episte
+
+1. ¶To all my faithful brethren in Christ Jesu
+and to all other that labour to weade out
+the wedes of popery, Peace in the Lorde
+Jesu be with you, and make you perfite in
+all good workes to doe his will, working
+in you that which is pleasant in his sight,
+through Jesus Christ our Lord.
+
+1. ¶Grace and peace with all maner spiritual
+feling and liuing worthi of
+the kindnes of Christ, be with
+all that thrist the will
+of God.
+
+1. ¶To my faythfull Brethren
+now afflycted, & to all those that vnfaynedly
+loue the Lorde Jesus, the Lorde guyde vs
+with his holy spret, that we maye always
+serue hym bothe in body and mynde in
+all synceryte to oure lyues ende.
+
+1. ¶To the Reader.
+
+1. ¶An Answere to a question, that was
+mouyd, whi the godly men wold
+not weare a surples.
+
+1. ¶A Godly Prayer.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
